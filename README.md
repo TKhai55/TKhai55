@@ -13,7 +13,7 @@
 
 - 💬 Goal: **My dream is become a software engineer or web developer.**
 
-- 📫 How to reach me **may dien emal cua m vo day**
+- 📫 How to reach me **thienkhaiak5555@gmail.com**
 
 - ⚡ Fun fact **I love playing game**
 
